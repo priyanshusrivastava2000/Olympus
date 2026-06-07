@@ -1,4 +1,4 @@
-# ORACLE — The Divine Matching
+# OLYMPUS — The Divine Matching
 
 > *Musica Divina · Sacred Sound Matching*
 
